@@ -1,2 +1,2 @@
 
-![попариньо](https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif)
+![попариньо](https://c.tenor.com/SI-DreZq30gAAAAC/kitty-hot.gif)
